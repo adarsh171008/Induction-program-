@@ -1,10 +1,5 @@
 # Induction-program-
-Adarsh yadav (EE)<br>
-
-Branch - EE<br>
-Registration no. - 25106009 <br>
-Mobile - 6283037608 <br>
-Email - adarsh171008@gmail.com <br>
+Adarsh yadav (EE)
 
 # Day-1 <br>
 ## 30/July/2025  <br>
