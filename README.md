@@ -12,7 +12,7 @@ Email - adarsh171008@gmail.com <br>
 ### A Soulful Beginning: <br>
 Unlike most colleges, where induction begins with loud music 🎶 or dance performances💃, our journey into college life began with a peaceful and powerful,a spiritual path at the college Gurudwara Sahib🙇. It was not just an event, it was a moment of gratitude, and positivity, a soulful welcome into a new chapter of our lives🙏. This divine reminding me that education is not just about books, but about values, respect, and inner growth🙂.
 
-### From Spiritual Warmth to a Grand Welcome: <br>
+### From Spiritual Warmth to a Grand Welcome: 
 After the peaceful Path, we were offered tea or snacks🍵, a small gesture that brought comfort and connection. We then went to the college auditorium, where faculty and seniors gave us a heartfull welcome💟, We also received a welcome kit 💼
 
 ### A Warm Welcome and Meaningful Guidance: <br>
@@ -22,7 +22,7 @@ The college principal and faculty members warmly welcomed us and shared encourag
 One of the most memorable moments of our induction program was the presence of a special guest - a respected political leader Mr.Garewal sir, whose words left a deep impact on all of us💯. Unlike the usual formal speeches, their talk was filled with real-life experiences and powerful messages about responsibility, and the role of youth in shaping the nation💫.
 They didn’t just speak to us - they connected with us. They tell the importance of education that it is not a personal success, but as a responsibility to uplift society📈. 
 
-### Exploring Our Future:  <br>
+### Exploring Our Future: 
 ### The Electrical Engineering Department: <br>
 After the inspiring session we get a break and then we were taken on a guided tour of the campus - a moment filled with excitement. The best part was visiting our own department: EE⚡. As i go into the classrooms and labs, i could already thinking myself as engineer in the making🧑‍🔧.
 The faculty explained the purpose of each lab - from electrical machines to circuits and control systems, giving us a glimpse of learning that will we soon experience. Seeing the equipment, computers, circuits and technology sparked a sense of motivation and pride. It was not just about seeing rooms and machines but it was about stepping into our future🫶.
