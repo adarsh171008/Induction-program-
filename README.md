@@ -6,8 +6,8 @@ Registration no. - 25106009 <br>
 Mobile - 6283037608 <br>
 Email - adarsh171008@gmail.com <br>
 
-#Day-1 <br>
-##30/July/2025
+# Day-1 <br>
+## 30/July/2025  <br>
 
 ##A Soulful Beginning: <br>
 Unlike most colleges, where induction begins with loud music 🎶 or dance performances💃, our journey into college life began with a peaceful and powerful,a spiritual path at the college Gurudwara Sahib🙇. It was not just an event, it was a moment of gratitude, and positivity, a soulful welcome into a new chapter of our lives🙏. This divine reminding me that education is not just about books, but about values, respect, and inner growth🙂.
@@ -30,8 +30,8 @@ The faculty explained the purpose of each lab - from electrical machines to circ
 This was the experience of my very first day in college ✔️ and i truly ready to step into this new phase of life….✍️
 
 
-#Day-2  <br>
-##01/08/2025  <br>
+# Day-2  <br>
+## 01/08/2025  <br>
 
 ##A Thought-Provoking Lecture on Human Universal Values:  <br>
 Attending Dr. Priya Darshani mam's lecture on Human Universal Values was truly enlightening 🌟. Her words were not just informative, but deeply touching ❤️, She tells the importance of living. She didn’t just teach values; she reflected them through her expression, tone, and sincerity 🗣️. The session inspire me to grow not just academically 📚, but as a better human being 🌼. It was a lecture that left a lasting impact on both the mind and the heart 🧠❤️.
@@ -40,8 +40,8 @@ Attending Dr. Priya Darshani mam's lecture on Human Universal Values was truly e
 After the sessions, we appeared for a short test based on Math and English ✍️📘. It was designed to assess our basic knowledge and help the faculty understand our skill levels.
 
 
-#Day-3  <br>
-##04/08/2025 <br>
+# Day-3  <br>
+## 04/08/2025 <br>
 
 ##Introduction to College Clubs  <br>
 First we introduced to causmic club. they told that the induction program is done by them. The causmic club is really good. They manage the entire program very well and gives the full support to the freshers. They also mention the programs done by them 🙌.
@@ -53,8 +53,8 @@ Again we attend the session of human universal value. It qas actually the part 2
 To make our learning experience even more engaging, we had a special class conducted by one of our seniors 👨‍🏫. Unlike a regular lecture, this session felt more like a friendly conversation. The senior shared valuable insights, explained basic concepts, and even gave us tips on how to manage college life effectively 🎓📘.It make us feel to connected more with senior. They explained the basic of coding in C++ language. Actually it is easy to learn something from a person who is also working on it so they explained very well and it was quite understandable. 
 
 
-#Day-4  <br>
-##05/08/2025 <br>
+# Day-4  <br>
+## 05/08/2025 <br>
 
 ##Session on Motorsports:  <br>
 The day became even more exciting with a thrilling session on Motorsports 🏁⚙️. Mr. Gautam Murria introduced us to the world of automotive innovation, speed, and engineering.For students like us in Electrical Engineering, it was fascinating to see how theory meets practice in such dynamic ways🤛. They told that Motor is not just a racing but it is the hardwork of those people who make that racing car, and this is called unity . It was also a nice session 😊
@@ -63,8 +63,8 @@ The day became even more exciting with a thrilling session on Motorsports 🏁�
 We also had the opportunity to attend the session on the benefits of millets, conducted by Mrs. Shaffy Makkar 🌾🥗. She explained how millets are not only highly nutritious — rich in fiber, protein, and essential minerals — but also support a sustainable and healthy lifestyle. Mrs. Makkar’s guidance encouraged us to be more mindful of our eating habits and reminded us that good health is the foundation of a successful life😇, both academically and personally. She gives the example of KUTKI(a millet), She said Kutki nhi chutki, means it is small in size but it is very beneficial🤓. 
 
 
-#Day-5 <br>
-##06/08/2025 <br>
+# Day-5 <br>
+## 06/08/2025 <br>
 
 
 ##Fitness for Future Engineers:  <br>
@@ -79,7 +79,7 @@ The next session introduced us was the National Cadet Corps (NCC) — one of the
 The final session of the day focused on one of the most essential life skills — effective communication 🗣️✨. In this class, we were guided on how to express ourselves clearly, confidently, and respectfully in both academic and professional settings. We learned about body language, tone of voice, and how to overcome the fear of public speaking 🎤💬. The session was interactive and encouraging, helping us realize that good communication.
 
 
-#Day-6  <br>
-##07/08/2025 <br>
+# Day-6  <br>
+## 07/08/2025 <br>
 
 
