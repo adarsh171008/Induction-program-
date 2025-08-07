@@ -2,7 +2,7 @@
 Adarsh yadav (EE)
 
 # Day-1 <br>
-## 30/July/2025  <br>
+## 30/July/2025   <br>
 
 ### A Soulful Beginning: <br>
 Unlike most colleges, where induction begins with loud music 🎶 or dance performances💃, our journey into college life began with a peaceful and powerful,a spiritual path at the college Gurudwara Sahib🙇. It was not just an event, it was a moment of gratitude, and positivity, a soulful welcome into a new chapter of our lives🙏. This divine reminding me that education is not just about books, but about values, respect, and inner growth🙂.
