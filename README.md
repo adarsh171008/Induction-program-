@@ -59,7 +59,7 @@ To make our learning experience even more engaging, we had a special class condu
 ##Session on Motorsports:  <br>
 The day became even more exciting with a thrilling session on Motorsports 🏁⚙️. Mr. Gautam Murria introduced us to the world of automotive innovation, speed, and engineering.For students like us in Electrical Engineering, it was fascinating to see how theory meets practice in such dynamic ways🤛. They told that Motor is not just a racing but it is the hardwork of those people who make that racing car, and this is called unity . It was also a nice session 😊
 
-## The Power of Millets:  <br>
+##The Power of Millets:  <br>
 We also had the opportunity to attend the session on the benefits of millets, conducted by Mrs. Shaffy Makkar 🌾🥗. She explained how millets are not only highly nutritious — rich in fiber, protein, and essential minerals — but also support a sustainable and healthy lifestyle. Mrs. Makkar’s guidance encouraged us to be more mindful of our eating habits and reminded us that good health is the foundation of a successful life😇, both academically and personally. She gives the example of KUTKI(a millet), She said Kutki nhi chutki, means it is small in size but it is very beneficial🤓. 
 
 
