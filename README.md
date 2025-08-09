@@ -78,3 +78,23 @@ The final session of the day focused on one of the most essential life skills �
 ## 07/08/2025 <br>
 
 
+### The Academic Journey Begins:  <br>
+The next day marked a new chapter as we attended our first class 📚. It was our Maths lecture taken by prof. Rajbir kaur. She taught the basic of mathematics, the way she taught was very nice and understandable. 
+After then we attend our physics lecture, conducted by prof. jaspreet Singh. He also taught some basic of physics🌐. This lecture was also very informative. 
+
+
+### Introduce to CML and NSS:  <br>
+After our classes we attend the CML and NSS session. The session opened our eyes to platforms where we can enhance our skills, serve society, and grow as responsible individuals🫡. We enjoyed a lot of activities during these sessions. We enjoy music, drama, jokes, games etc in this session💯. Besides entertainment they also motivate us about our studies or encourage us yo join their clubs. 
+
+
+# Day-7  <br>
+## 08/08/2025  <br>
+
+
+### Workshop Exploration Day:  <br>
+The next day was an exciting journey into the heart of practical learning 🛠⚡. We visited our college workshops, including Foundry, Fitting, Machine, Welding, Electric, and Carpentry. Each workshop gave us a glimpse into the real-world applications of engineering, filling us with curiosity and enthusiasm to learn more🤓. I attend the foundey workshop😄. Here, I learned how molten metal is poured into moulds to create strong and precise components. It gave me a real taste of practical engineering and showed how theory turns into reality. They also told the importance of these workshops apart from engineering ⚡. Truly, studying engineering or doing something practical is totally different, i am so excited to leran this🙂. 
+
+
+
+And my overall college experience - ⭐⭐⭐⭐⭐ 
+
